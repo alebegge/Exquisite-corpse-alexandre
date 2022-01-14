@@ -9,7 +9,7 @@ Manneken Pis loved scaring little children.
 His favourite prank was to pee on them while they went to school.
 
 
-He went to every house in bruxelles and peed at the front of everyone's house.
+He went to every house in Bruxelles and peed at the front them.
 Everyone was really very angry by his such act.
 They decided to punish him.
 
